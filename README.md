@@ -5,8 +5,9 @@
 👨‍💻 Today I practice at SF BSU
 
 📫 How to reach me 
--> sergeybulankin@gmail.com
 
--> instagram.com/bulankinsergey
+sergeybulankin@gmail.com
 
--> vk.com/bulankin_sergey
+instagram.com/bulankinsergey
+
+vk.com/bulankin_sergey
