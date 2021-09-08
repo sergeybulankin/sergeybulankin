@@ -6,8 +6,8 @@
 
 📫 How to reach me 
 
-sergeybulankin@gmail.com
+📫 sergeybulankin@gmail.com
 
-instagram.com/bulankinsergey
+📫 instagram.com/bulankinsergey
 
-vk.com/bulankin_sergey
+📫 vk.com/bulankin_sergey
